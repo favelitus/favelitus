@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @favelitus
 - 👀 I’m interested in ... to learn
 - 🌱 I’m currently learning ... lots of things
-- 💞️ I’m looking to collaborate on ... nothing (by now)
-- 📫 How to reach me ... you can't (lol)
+- 💞️ I’m looking to collaborate on ... at nothing (by now)
+- 📫 How to reach me ... @ favelitus@proton.me
 - 😄 Pronouns: ... she/her
 - ⚡ Fun fact: ... i'm brazilian
 
